@@ -15,6 +15,7 @@
 ![2-1](https://github.com/user-attachments/assets/87165a05-0047-4b30-96e1-799a11dbc9f8)
 ![2-2](https://github.com/user-attachments/assets/aa779d20-9f37-4a0f-aef2-0af0d6f71bfd)
 
-персоздаем под.
+пересоздаем под.
+
 ![2-3](https://github.com/user-attachments/assets/83a8b3dc-13b2-4729-8555-739494faf9ef)
 ![2-4](https://github.com/user-attachments/assets/dd15c64a-0ab9-481c-a325-b8a1a590a88d)
